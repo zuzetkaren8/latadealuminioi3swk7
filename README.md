@@ -1,1 +1,0 @@
-# latadealuminioi3swk7
